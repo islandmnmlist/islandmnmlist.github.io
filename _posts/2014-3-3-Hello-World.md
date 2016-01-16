@@ -11,13 +11,13 @@ I started intentionally "becoming a minimalist" the second half of 2015. It beca
 
 I've read the KonMari book (TODO: ADD LINK) as well as countless blogs on minimalism (TODO: ADD LINKS), so I will probably use 'KM' and 'minimize' interchangeably.
 
-# Stuff I've already minimized
+# Stuff I've minimized
 - clothes
 - books
 - DVDs/CDs
 - electronics (devices, cords, etc.)
 - digital clutter (also wrote a blog on the topic)
-- desk
+- desk / work environment
 
 # Stuff I still need to minimize
 - vitamins / supplements
@@ -28,6 +28,7 @@ I've read the KonMari book (TODO: ADD LINK) as well as countless blogs on minima
 # Benefits I'm noticing
 - I'm reading more (and actually _finishing_ books)
 - More time to ponder life
+- I don't _want_ stuff anymore. (Besides a photo scanner and a boat). I'm much more content with what I already have.
 
 # Currently reading
 "Everything That Remains" by _____
