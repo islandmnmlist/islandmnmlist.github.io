@@ -4,8 +4,7 @@ title: "Broken Phone... yay?"
 published: true
 ---
 
-
-_I got rid of most of my books and now I'm actually reading again__.  A lot of minimalists seem to have this experience. And I'm _finishing_ books, which was even more rare for me. Yesterday I finished ["Everything That Remains"](http://www.theminimalists.com/etr/); it was as good as I expected and I highly recommend it.
+__I got rid of most of my books and now I'm actually reading again__.  A lot of minimalists seem to have this experience. And I'm _finishing_ books, which was even more rare for me. Yesterday I finished ["Everything That Remains"](http://www.theminimalists.com/etr/); it was as good as I expected and I highly recommend it.
 
 __Also yesterday, my mobile phone got borked, probably beyond repair. And honestly, I'm kind of glad.__
 I could spend who-knows-how-many-hours trying to fix it (it's rooted, has a custom ROM, so any number of things could be messed up) and get really frustrated. Instead, as of right now I have no desire to fix it or replace it with something else. There _are_ apps I will miss using: Insight Timer for meditation, Signal for encrypted texts, and the camera app for taking blurry photos of my dogs. Oh, and the alarm clock, I'll definitely have to replace that with something. But that's about it. I'm not a big phone person anyway, so I hardly used it for its primary purpose. I think the malfunction timing was perfect.
