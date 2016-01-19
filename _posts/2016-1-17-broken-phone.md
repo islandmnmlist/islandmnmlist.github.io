@@ -4,6 +4,7 @@ title: "Broken Phone... yay?"
 published: true
 ---
 
+
 __I got rid of most of my books and now I'm actually reading again__.  A lot of minimalists seem to have this experience. And I'm _finishing_ books, which was even more rare for me. Yesterday I finished ["Everything That Remains"](http://www.theminimalists.com/etr/); it was as good as I expected and I highly recommend it.
 
 __Also yesterday, my mobile phone got borked, probably beyond repair. And honestly, I'm kind of glad.__
